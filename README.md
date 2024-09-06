@@ -1,2 +1,0 @@
-# losiento
-para pedirte perdon
